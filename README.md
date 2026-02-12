@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Deep Learning,Machine Learning,Linux Hacking.**
 
-- 📫 How to reach me **yumermustafa2000@gmail.com**
+- 📫 How to reach me **yumermustafa2000@gmail.com and omiitoogs@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
